@@ -1,6 +1,6 @@
 ## ABOUT ME
 
-I am a rising senior at the University of Wisconsin-Madison. I am currently looking for Product Manager positions in a large company/startups in the United States 
+I am a rising senior at the University of Wisconsin-Madison. I am currently looking for full-time product manager positions in a large company/startup in the United States.  
 
 ### Markdown
 
